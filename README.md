@@ -1,1 +1,9 @@
-# HrmProj
+![image](https://github.com/user-attachments/assets/c8b86fa4-b5ce-49e9-9c95-87a8be284d3a)
+![image](https://github.com/user-attachments/assets/911bd3a5-8508-4cf7-a637-ce14211d5b73)
+![image](https://github.com/user-attachments/assets/cd1f7b6e-2146-474e-bfd0-9b4851c905c7)
+![image](https://github.com/user-attachments/assets/1aa92250-da6b-4bd5-b803-58515216d16e)
+![image](https://github.com/user-attachments/assets/4f38cfd3-692d-4186-81d0-939db993ac4c)
+![image](https://github.com/user-attachments/assets/56f806ed-ce4e-4458-a0a4-5136ff094664)
+![image](https://github.com/user-attachments/assets/628b582f-44d9-4491-8db3-a37a4f4e8a63)
+![image](https://github.com/user-attachments/assets/b78b20df-b0d4-4423-9798-2e3ccc7af9e5)
+![image](https://github.com/user-attachments/assets/b22986af-bd88-4f4f-87ae-d1b7326ff9ed)
